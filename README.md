@@ -1,0 +1,1 @@
+# FintechSklipek-2017
